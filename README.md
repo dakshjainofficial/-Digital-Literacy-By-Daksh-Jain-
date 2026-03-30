@@ -1,4 +1,4 @@
-# -Digital-Literacy-By-Daksh-Jain-
+# -Digital-Literacy-Project-By-Daksh-Jain-
 📘 Digital Literacy Project
 👨‍💻 By Daksh Jain
 
